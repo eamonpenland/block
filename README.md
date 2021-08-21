@@ -7,7 +7,7 @@ Everyday new smart contracts are published to Ethereum’s blockchain. Some cont
 
 
 
-2021 update :: this projects metrics have expanded and been updated 2021  
+2021 update :: this projects metrics have expanded and been updated-- details forthecoming 2022  
 
 details forthcoming.
 
